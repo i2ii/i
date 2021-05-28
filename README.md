@@ -1,5 +1,3 @@
-此处为蜂巢官网地址更新地
-
 蜂巢最新官网地址：https://666yun.men
 
 Tg频道：https://t.me/fengchaowa
