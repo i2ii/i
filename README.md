@@ -1,4 +1,6 @@
-蜂巢最新官网地址：https://666yun.men
+蜂巢专线版官网地址：https://98ka.men
+
+蜂巢普通版官网地址：https://666yun.men
 
 Tg频道：https://t.me/fengchaowa
 
