@@ -1,4 +1,4 @@
-专线版官网地址：https://90ks.men
+专线版官网地址：https://bhcloud.men
 
 普通版官网地址：https://888yun.men
 
