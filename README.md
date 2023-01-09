@@ -1,6 +1,6 @@
 专线版官网地址：https://a.bhteam.cloud
 
-(同理网址前缀改为b.bhteam.cloud或者c d…z都是可以访问的哦)
+(同理网址前缀改为b.bhteam.cloud或者c d…z都是可以访问的,前缀换成任何单字母或者多字母组合都可以访问哦.)
 
 普通版官网地址：https://888yun.men
 
