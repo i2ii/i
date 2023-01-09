@@ -1,4 +1,5 @@
-专线版官网地址：https://bhkcloud.men
+专线版官网地址：https://a.bhteam.cloud
+(同理网址前缀改为b.bhteam.cloud或者c d…z都是可以访问的哦)
 
 普通版官网地址：https://888yun.men
 
