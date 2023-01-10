@@ -1,6 +1,10 @@
-专线版官网地址：https://a.bhteam.cloud
+专线版大陆地址：https://a.bhteam.cloud
 
 (同理网址 https://b.bhteam.cloud 或者c d…z都是可以访问的,前缀换成任何单字母或者多字母组合都可以访问哦.)
+
+专线版海外地址：https://98ka.men
+
+(此网址为被墙网址，套餐没到期的用户连接节点后可以正常访问以及续费，此网址固定不变。)
 
 普通版官网地址：https://888yun.men
 
