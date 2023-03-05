@@ -8,7 +8,7 @@
 
 大陆和海外网址里的所有数据都是实时同步的。
 
-普通版官网地址：https://888yun.men
+普通版官网地址：https://a.888yun.men
 
 Tg频道：https://t.me/fengchaowa
 
