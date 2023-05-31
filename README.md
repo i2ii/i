@@ -1,6 +1,6 @@
-专线版大陆地址：https://a.bhteam.cloud
+专线版大陆地址：https://a.kkkcloud.men
 
-(同理网址 https://b.bhteam.cloud 或者c d…z都是可以访问的,前缀换成任何单字母或者多字母组合都可以访问哦.)
+(此网址是大陆网络可以访问的,被墙后会随时更新.)
 
 专线版海外地址：https://98ka.men
 
