@@ -1,4 +1,4 @@
-BH专线版大陆地址：https://s.kkkcloud.men
+BH专线版大陆地址：https://t.kkkcloud.men
 
 (此网址是大陆网络可以访问的,被墙后会随时更新,邀请好友必须用此网址内的邀请链接哦.)
 
